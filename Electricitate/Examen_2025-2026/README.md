@@ -1,0 +1,1 @@
+![Examen electricitate 2025-2026](Examen.jpeg)
